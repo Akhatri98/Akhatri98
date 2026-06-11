@@ -1,1 +1,1 @@
-
+esse est percipi
